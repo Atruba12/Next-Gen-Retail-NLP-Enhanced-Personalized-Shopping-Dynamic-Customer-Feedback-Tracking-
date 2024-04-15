@@ -1,1 +1,1 @@
-# Next-Gen-Retail-NLP-Enhanced-Personalized-Shopping-Dynamic-Customer-Feedback-Tracking-
+# Next-Gen-Retail-NLP-Enhanced-Personalized-Shopping-Dynamic-Customer-Feedback-Tracking
